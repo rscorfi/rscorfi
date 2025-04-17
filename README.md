@@ -8,3 +8,5 @@
 - 📫 How to reach me: rscorfi at GitHub
 - 😄 Pronouns: Fuck You. This things doesn't exist. God made men and women, thats it. And I am a man!
 - ⚡ Fun fact: Nothing is fun, every thing is fun
+
+![Figrua do gato](https://jpimg.com.br/uploads/2025/01/10-curiosidades-sobre-os-filhotes-de-gato.jpg)
