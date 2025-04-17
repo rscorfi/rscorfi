@@ -10,3 +10,5 @@
 - ⚡ Fun fact: Nothing is fun, every thing is fun
 
 ![Figrua do gato](https://jpimg.com.br/uploads/2025/01/10-curiosidades-sobre-os-filhotes-de-gato.jpg)
+
+<img src="https://fly.metroimg.com/upload/q_85,w_700/https://uploads.metroimg.com/wp-content/uploads/2025/02/14182411/gato-com-cara-desconfiada.jpg" alt="Foto do Gato">
